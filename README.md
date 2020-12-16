@@ -1,1 +1,1 @@
-# damevisitas. compartela porfavor
+# damevisitas.
